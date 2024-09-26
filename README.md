@@ -1,2 +1,2 @@
-"🎵 Harmonizing Code, Creativity, and AI 🤖🎨
-🎼 Explore the world of music, art, and artificial intelligence through code. From symphonies to stunning visuals, join me on this creative journey! 🚀🎨📈 #MusicAI #CodeArtistry #ComposerLife"
+ARTIFEX Labs, Founder and Director of Research | "The Future is Forged Not Found" 
+Musician, Cloud Architect, Developer, World Builder, Concerned Cyberpunk  <3
