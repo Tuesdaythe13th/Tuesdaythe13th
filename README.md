@@ -1,4 +1,6 @@
-ARTIFEX Labs, Founder and Director of Research | "The Future is Forged Not Found" 
+CEO + Director of Research @ ARTIFEX LABS
 
+"The Future is Forged, Not Found" 
 
-Musician, Researcher, Cloud Architect, ML engineer <3
+ML engineer. AI Safety and Security Researcher. Musician. Artist. Concerned Cyberpunk <3
+
